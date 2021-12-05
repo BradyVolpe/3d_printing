@@ -1,0 +1,1 @@
+CR-10 V3 X Axis Cable Chain (REVISED)  by ve6btc on Thingiverse: https://www.thingiverse.com/thing:4704837
